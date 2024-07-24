@@ -1,9 +1,6 @@
 # tanvirrkaur.github.io
 this is my first github website
 
-## Excel certificate
-	![alt text] (![IMG_0127](https://github.com/user-attachments/assets/ee1b740c-4256-4e76-b802-ad2545059bd0)
-)
 ## activity report of student induction program 2024
 
 |**date**| resource person |
