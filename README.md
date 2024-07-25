@@ -15,6 +15,7 @@ this is my first github website
 |**22nd july 24**| On the eightth day of our induction program we firstly interacted with Dr.SB Singh, he guided us through life and taught us the value of next four years and what we should do for achieving our dreams. Then the lecture followed by Dr.Pushpinder Singh who imteracted with us related to adolosence and the way we communicate among each other, he also interacted related to the value of life.
 |**23rd july 24**| On the ninth day of our inductiob program we headed towards our lectures in classes. Today we had our UHV lecture where we discussed what we studied earlier then we learnt a new chapter that was understanding harmony among society then we had our physics class where we taught basics of physics and we got to know about our syllabus more deeply. |
 |**24th july 24**| On the tenth day of our induction program we imteracted with Mr. Gauravdeep Singh. he taught us about how everything is connected and how we should believe in god. He told us about 3 blessings he got from his elders that were firstly that we should find our qualities, secondly we have power of the universr and lastly everything happens for a reason and god has planned good for everyone. Then we interacted with causmic club and that was a very interactive session. |
+
 **Certificate of excel**
 ![IMG_0126](https://github.com/user-attachments/assets/5d1c1b27-c4cd-4ac5-97b9-5496c91674bd)
 
